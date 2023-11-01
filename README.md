@@ -52,7 +52,6 @@
 
 
 
-🤨👇
 
 
 
@@ -98,7 +97,6 @@
 
 
 
- 101 😜
 
 
 
@@ -137,23 +135,6 @@
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
- nah cuz why did you scroll this far? what do you want from me...
 
 
 
